@@ -1,1 +1,0 @@
-Chiken love curry
